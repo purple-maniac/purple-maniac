@@ -1,4 +1,4 @@
- <p align="center"> $\color{Purple}\Huge{\textsf{"Let's cut the shit, old sport. I know you're listening to this."}}$
+ <p align="center"> <img width="640" height="206" alt="IMG_6712" src="https://github.com/user-attachments/assets/cddada05-b320-4936-b607-5738b9939ae9" />
 
 ---
 ‎ <p align="center"> $${\color{Purple}I}$$ $${\color{purple}can}$$ $${\color{purple}get}$$ $${\color{purple}really}$$ $${\color{purple}anxious}$$ $${\color{purple}or}$$ $${\color{purple}nontalkative}$$ $${\color{purple}if}$$ $${\color{Purple}I'm}$$ $${\color{purple}not}$$ $${\color{purple}around}$$ $${\color{magenta}Henry!}$$
