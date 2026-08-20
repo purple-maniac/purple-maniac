@@ -1,8 +1,8 @@
- <p align="center"> <img width="640" height="206" alt="IMG_6712" src="https://github.com/user-attachments/assets/cddada05-b320-4936-b607-5738b9939ae9" />
+ <p align="center"><img width="637" height="206" alt="IMG_6832" src="https://github.com/user-attachments/assets/da775744-48f2-427c-9ac4-4146f425e4c6" />
 
 ---
-‎ <p align="center"> $${\color{Purple}I}$$ $${\color{purple}can}$$ $${\color{purple}get}$$ $${\color{purple}really}$$ $${\color{purple}anxious}$$ $${\color{purple}or}$$ $${\color{purple}nontalkative}$$ $${\color{purple}if}$$ $${\color{Purple}I'm}$$ $${\color{purple}not}$$ $${\color{purple}around}$$ $${\color{magenta}Henry!}$$
-‎ <p align="center">  $${\color{purple}Shoutout}$$ $${\color{purple}to}$$ $${\color{Purple}my}$$ $${\color{purple}girlfriend}$$ $${\color{Purple}I}$$ $${\color{purple}love}$$ $${\color{purple}you}$$ $${\color{purple}Lily!}$$
-‎ <p align="center"><<img width="495" height="750" alt="image" src="https://github.com/user-attachments/assets/054e1732-b5af-412f-9c16-ab15a21a6a9c" />
+‎ <p align="center"> $${\color{Purple}◞⠀ ⠀ ¨Dave Miller" . DSaF 𓏼⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 𓏼✚ Introject⠀ ⠀  He / It!}$$ 
+‎ <p align="center">  $${\color{magenta}¨And⠀ maybe ⠀halfway⠀ through,⠀ it ⠀has⠀ more⠀ to⠀ do ⠀with⠀ me⠀ killing⠀ him ⠀than ⠀it⠀ ever⠀did ⠀protecting⠀ myself.¨}$$ 
+‎ <p align="center"><<img width="495" height="750" alt="IMG_6831" src="https://github.com/user-attachments/assets/99b5a04c-d04d-4d8a-8947-3249f93ed635" />
 
 ‎‎ <p align="center">[STRAWPAGE](https://patheticmeat.straw.page/) [PRONOUNS CC](https://pronouns.cc/@Ikilledthosekidsin1985/PurplePervert)</p> 
